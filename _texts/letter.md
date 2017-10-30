@@ -12,9 +12,6 @@ toc:
 
 ---
 
----
-
-
 
 ## Letter One - Gladys Chu, 23 July 76
 
